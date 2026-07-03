@@ -12,6 +12,7 @@ while remaining grounded in evidence. And fun.
 
 ## Publications
 
+- Follow me on socials by clicking https://linktr.ee/xaefosura
 - Substack: https://xaefosura.substack.com
 - Medium: https://medium.com/@xaefosura
 
